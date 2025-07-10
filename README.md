@@ -10,4 +10,4 @@
 
 这些平台专注于高清欧美日韩精品视频，内容丰富多样，分类详细，用户可以根据兴趣快速查找自己喜欢的影片。每个视频页面都提供影片的时长、主演、清晰度等信息，支持高清视频播放，平台还能根据网络状况自动调整画质，保障流畅的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sang20250710/sang10 ）</span>
